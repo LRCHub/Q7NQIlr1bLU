@@ -1,68 +1,61 @@
-# TOGENASHI TOGEARI – No one
+# TOGENASHI TOGEARI – ダレモ - No one
 
 > **歌詞登録ステータス：プレーン歌詞のみ**
 
 ```
-I just want you close
-Where you can stay forever
-You can be sure
-That it will only get better
-You and me together
-Through the days and nights
-I don't worry 'cuz
-Everything's going to be alright
-People keep talking
-they can say what they like
-But all I know is everything's
-going to be alright
-No one no one no one
-Can get in the way of
-what I'm feeling
-No one no one no one
-Can get in the way of
-what I feel for you you you
-Can get in the way of
-what I feel for you
-When the rain is pouring down
-And my heart is hurting
-You will always be around
-This I know for certain
-You and me together
-Through the days and nights
-I don't worry 'cuz
-Everything's going to be alright
-People keep talking
-they can say what they like
-But all I know is everything's
-going to be alright
-No one no one no one
-Can get in the way of
-what I'm feeling
-No one no one no one
-Can get in the way of
-what I feel for you you you
-Can get in the way of
-what I feel
-I know some people
-search the world
-To find something like
-what we have
-I know people will try try
-to divide something so real
-So til the end of time
-I'm telling you there is no one
-No one no one no one
-Can get in the way of
-what I'm feeling
-No one no one no one
-Can get in the way of
-what I feel for you you you
-oh oh oh oh oh
-oh oh oh oh oh
-oh oh oh oh oh
-oh oh oh oh
-oh oh oh oh oh
-oh oh oh oh oh
-oh oh oh oh oh
-oh oh oh oh
+足りないものばかり見たところで
+欲しいものは何処にもなかった
+焚きつけた過去への炎で
+君に理解してほしいだけ
+退屈な日々 壊れたくて
+掃き出す現実(せかい) 嫌いなんだ
+騙し合う気配に疲れて
+僕は孤独を選んだだけ
+優しさを見透かしたって
+何も無いと 疑うよ
+あとで傷つくより
+端(はな)から線を引いては
+守ってた
+誰も奪わないでって
+うまく言葉が出てこなくって 笑う
+確かなものはないのに
+確かな何かになりたくて
+あのとき 誰も味方じゃない場所で
+唯一 手を伸ばしてくれた運命
+こんなとこじゃ終われない
+ずぶ濡れで無様でも叫べ
+マトモじゃないかな 嗤うかな
+僕は僕を生きてるだけ
+混ざれない 曲がれない
+孤高に咲く花
+真っ当じゃ生きれない
+だから僕らは歌ってる
+有象無象 勝手にどうぞ
+♪
+大罪まがい犯したみたく
+濁る空気が 苦手なんだ
+頼れない疑心暗鬼の癖
+君に紐解いてほしいだけ
+♪
+押し寄せてく 人の波
+強い意志も 揺らぐの
+なんで大事なもの
+貫くたび否定すんの?
+嫌いなら 誰も近づかないでって
+黒く塗り潰して痛みを 攫う
+敵うわけもない現状(いま)
+叶えるまで記憶は涙
+たとえば 誰も頷かなくたって
+唯一 無二の希望で闇照らせ
+尋常じゃない後悔が
+心に群がっても挑め
+眩しい声が 答えだ
+僕は君と生きたいだけ
+くだらない わけがない
+孤高に咲く花
+道のない 地図なら
+破いて 今日を拓けばいい
+他人(ひと)の視線
+もう どうでもいいよ
+♪
 ```
